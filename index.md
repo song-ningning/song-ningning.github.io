@@ -2,5 +2,3 @@
 
 
 ![Image description](jiajia_a.jpg)
-![Image description](jiajia_b.jpg)
-![Image description](jiajia_c.jpg)
