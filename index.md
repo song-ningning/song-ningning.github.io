@@ -1,4 +1,4 @@
 宋佳伊作品集
 
 
-![Image description](jiajia_a.jpg)
+![Image description](IMG_20260714_084646.png)
